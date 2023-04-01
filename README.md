@@ -1,3 +1,3 @@
 # shajan-resume
 
-To know about more see it.
+To know more about me see it.
